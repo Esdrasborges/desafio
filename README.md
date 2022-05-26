@@ -4,3 +4,4 @@
 # Eu que meditava ir ter com a morte, não ousei fita-la quando ela veio ter comigo. Brás Cubas 
 # A vida sem luta é um mar morto no centro do organismo Universal. Machado de Assis
 # Você atingirá o sucesso quando apresentar com orgulho as cicatrizes que adquiriu ao longo da sua jornada
+# Quanto mais fortes suas provações, maiores serão sua vitória.
