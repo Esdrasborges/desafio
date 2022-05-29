@@ -5,3 +5,5 @@
 # A vida sem luta é um mar morto no centro do organismo Universal. Machado de Assis
 # Você atingirá o sucesso quando apresentar com orgulho as cicatrizes que adquiriu ao longo da sua jornada
 # Quanto mais fortes suas provações, maiores serão sua vitória.
+# Eu vim da selva, sou leão, sou demais pro seu quintal. McRacionais
+# A alma guarda o que a mente tenta esquecer! McRacionais
