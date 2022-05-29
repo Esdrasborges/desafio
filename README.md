@@ -8,3 +8,4 @@
 # Eu vim da selva, sou leão, sou demais pro seu quintal. McRacionais
 # A alma guarda o que a mente tenta esquecer! McRacionais
 # Vamos brindar o dia de hoje, pois amanhã só pertence a Deus.
+# Andava a toda velocidade Pra superar a saudade que andava junto a mim Essa saudade era de Rosa Coisa mais linda do meu jardim
