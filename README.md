@@ -7,3 +7,4 @@
 # Quanto mais fortes suas provações, maiores serão sua vitória.
 # Eu vim da selva, sou leão, sou demais pro seu quintal. McRacionais
 # A alma guarda o que a mente tenta esquecer! McRacionais
+# Vamos brindar o dia de hoje, pois amanhã só pertence a Deus.
