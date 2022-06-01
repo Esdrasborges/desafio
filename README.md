@@ -10,3 +10,7 @@
 # Vamos brindar o dia de hoje, pois amanhã só pertence a Deus.
 # Andava a toda velocidade Pra superar a saudade que andava junto a mim Essa saudade era de Rosa Coisa mais linda do meu jardim
 # A tragédia não é quando um homem morre. A tragédia é o que morre dentro de um homem quando ele está vivo.
+# Feeling my way through the darkness
+Guided by a beating heart
+I can't tell where the journey will end
+But I know where to start
